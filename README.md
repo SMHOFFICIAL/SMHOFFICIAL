@@ -1,10 +1,13 @@
-- 👋 Hi, I’m @SMHPodda
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+>>>>> Hi friends>>>>>
+      Im SMH PODDA
+
+🛑Welcome 
+    👻GET Html codes under
+ 
+
+
 
 <!---
-SMHOFFICIAL/SMHOFFICIAL is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+SMH Podda is a Brand name Sri lanka...
+
+   
