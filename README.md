@@ -1,6 +1,6 @@
 >>>>> Hi friends>>>>>
       
-- 🥏 Im SMH PODDA
+- 🥏 STH Official 
 
 🛑Welcome 
     
@@ -9,6 +9,6 @@
 
 
 <!---
-SMH Podda is a Brand name Sri lanka...
+STH is a Brand name Sri lanka...
 
    
